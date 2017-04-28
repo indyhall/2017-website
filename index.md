@@ -1,4 +1,4 @@
-# Indy Hall - The Original Coworking Community in Philadelphia
+# The Original Coworking Community in Philadelphia
 
 A Better Place to Work Starts with Better Coworkers.
 We are a community of people who choose to work together, more productively, to make our work, our lives, our cities and communities better.
